@@ -1,4 +1,7 @@
+# 💫 Hi 👋, I'm Samyog Phuyal
+**A Graphic Designer  || UI/UX Designer || Data Entry Specialist || From Nepal 
 
+Email Me 👉 ✉️ **samyogphuyal036@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 
 # 💫 About Me:
