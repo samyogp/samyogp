@@ -1,11 +1,15 @@
 # 💫 Hi 👋, I'm Samyog Phuyal
-**A Graphic Designer  || UI/UX Designer || Data Entry Specialist || From Nepal 
+A Graphic Designer  || UI/UX Designer || Data Entry Specialist || From Nepal 
 
 Email Me 👉 ✉️ **samyogphuyal036@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 
 # 💫 About Me:
-- learning web development <br>-building projects with html css<br>-using canva & figma  and design tools 
+🎓 BCA student From Nepal 
+ - Currently Learning HTML,CSS,Java Script,Java.
+ - 🎨 Graphic Designer Design Tools CANVA,FIGMA,PHOTOSHOP.
+ -  Build Project Daily
+ -  💡 Intrested in Freelancing & Online Earning .
 
 
 ## 🌐 Socials:
